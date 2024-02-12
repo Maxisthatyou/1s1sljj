@@ -1,0 +1,9 @@
+South Delta Secondary (SDSS) is a public high school in Tsawwassen, British Columbia, Canada. There are approximately 1,500 students enrolled in each grade 8 through 12 (as of 2019/2020).[1] Graduation rates in the years 2005 to 2010 vary between 95% and 99%.
+
+SDSS feeder schools include all the public elementary schools in Tsawwassen: South Park, Cliff Drive, Beach Grove, English Bluff and Pebble Hill. The school is near Dennison Park, and outdoor gym classes often occur there rather than on school grounds. SDSS shares its track with South Park Elementary School, and hosts the district and regional Track and Field events.
+
+SDSS is the only secondary school in South Delta that has a French Immersion program. Any students from Ladner that wish to continue with French Immersion in high school must go to South Delta Secondary, since there is no French Immersion at Delta Secondary (in Ladner community). Students who complete the French Immersion program at SDSS will graduate with a Double Dogwood diploma.
+
+Tsawwassen used to also have a public Junior high school, Tsawwassen Junior Secondary (TJS). In 1994, TJS merged with South Delta Senior Secondary to form South Delta Secondary School. During the following years students from Grades 8 through 12 attended classes in both the Senior (North) and Junior (South) buildings. In 2003, the South building property was sold and the building which formerly housed the Junior High school was demolished; it is now a housing development. The North building was subsequently expanded to accommodate all students, and now South Delta Secondary is the only public high school in the community of Tsawwassen.
+
+Special programs at SDSS include a Hockey Academy, Soccer Academy, Film Acting/Production Academy, and Culinary Arts program. Since the 2012-2013 school year, SDSS has also had Sustainable Earth Academy. 
