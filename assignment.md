@@ -1,7 +1,33 @@
-Elon Reeve Musk (/ˈiːlɒn/; EE-lon; born June 28, 1971) is a businessman and investor. He is the founder, chairman, CEO, and CTO of SpaceX; angel investor, CEO, product architect, and former chairman of Tesla, Inc.; owner, chairman, and CTO of X Corp.; founder of the Boring Company and xAI; co-founder of Neuralink and OpenAI; and president of the Musk Foundation. He is the second wealthiest person in the world, with an estimated net worth of US$232 billion as of December 2023, according to the Bloomberg Billionaires Index, and $182.6  billion according to Forbes, primarily from his ownership stakes in Tesla and SpaceX.[5][6][7]
-
-A member of the wealthy South African Musk family, Elon was born in Pretoria and briefly attended the University of Pretoria before immigrating to Canada at age 18, acquiring citizenship through his Canadian-born mother. Two years later, he matriculated at Queen's University at Kingston in Canada. Musk later transferred to the University of Pennsylvania, and received bachelor's degrees in economics and physics. He moved to California in 1995 to attend Stanford University, but dropped out after two days and, with his brother Kimbal, co-founded online city guide software company Zip2. The startup was acquired by Compaq for $307 million in 1999, and, that same year Musk co-founded X.com, a direct bank. X.com merged with Confinity in 2000 to form PayPal.
-
-In October 2002, eBay acquired PayPal for $1.5 billion, and that same year, with $100 million of the money he made, Musk founded SpaceX, a spaceflight services company. In 2004, he became an early investor in electric vehicle manufacturer Tesla Motors, Inc. (now Tesla, Inc.). He became its chairman and product architect, assuming the position of CEO in 2008. In 2006, Musk helped create SolarCity, a solar-energy company that was acquired by Tesla in 2016 and became Tesla Energy. In 2013, he proposed a hyperloop high-speed vactrain transportation system. In 2015, he co-founded OpenAI, a nonprofit artificial intelligence research company. The following year, Musk co-founded Neuralink—a neurotechnology company developing brain–computer interfaces—and the Boring Company, a tunnel construction company. In 2022, he acquired Twitter for $44 billion. He subsequently merged the company into newly created X Corp. and rebranded the service as X the following year. In March 2023, he founded xAI, an artificial intelligence company.
-
-Musk has expressed views that have made him a polarizing figure.[8] He has been criticized for making unscientific and misleading statements, including COVID-19 misinformation and antisemitic conspiracy theories.[8][9][10][11] His ownership of Twitter has been similarly controversial, being marked by the laying off of a large number of employees, an increase in hate speech and misinformation and disinformation on the website, as well as changes to Twitter Blue verification. In 2018, the U.S. Securities and Exchange Commission (SEC) sued him, alleging that he had falsely announced that he had secured funding for a private takeover of Tesla. To settle the case, Musk stepped down as the chairman of Tesla and paid a $20 million fine. 
+**崇拜**
+我有一个幼稚的想法
+给你一个约束我的魔法
+我变成雪人的话 就可以慢慢融化
+让你收下 我最美的年华
+我还有一个无知的想法
+抛弃世界吧 就剩我们俩
+若现实不是童话 我就变成你的白马
+只带你去摘下 用我伤疤 灌溉的鲜花
+ 
+我崇拜 你回眸一笑 就万里火海
+能明白 我孤独的存在
+世间万般等待 不及你口先开 要不要跟我来
+可好奇怪 你回眸一笑 就爱恨重来
+我还在 用上次的遗骸
+只要记忆还在 我就不知悔改 让你满意离开
+ 
+我给你一个阻止我的办法
+从现在开始 不准说真话
+你提问我来回答 输的人慢慢木化
+但愿我很优雅 伤口还能长出你爱的花
+ 
+我崇拜 你回眸一笑 就刀山火海
+我本来 应该一生无爱
+世间好多遗憾 一切都有替代 但除了你以外
+躲不开 你回眸一笑 我卷土重来
+我大概 没你就不存在
+只要你还缅怀 我会洁身自爱 继续我的崇拜
+ 
+我崇拜 可好奇怪
+我崇拜 又躲不开
+爱上了你以来 耗尽所有崇拜 我已不复存在
+https://lyricstranslate.com/en/chong-bai-adoration.html-0
