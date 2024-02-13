@@ -1,6 +1,6 @@
 [![alt text](https://i.kfs.io/album/global/252175289,0v1/fit/500x500.jpg)](https://www.youtube.com/watch?v=TXGIxVjrvKY)
 
-[**崇拜**](https://lyricstranslate.com/en/chong-bai-adoration.html-0)[^1] 
+# [**崇拜**](https://lyricstranslate.com/en/chong-bai-adoration.html-0)[^1]
 
 [*By: Joker Xue*](https://en.wikipedia.org/wiki/Joker_Xue)
 
@@ -62,6 +62,9 @@
 我崇拜 又躲不开
 
 爱上了你以来 耗尽所有崇拜 我已不复存在
+
+
+- this is a song released in June 16th, 2023
 
 **_Upcoming Concert in Vancouver, BC, Canada_** [^2]
 ![alt text](https://rogersarena.com/wp-content/uploads/2023/11/Joker-Xue-2024-Rogers-Aren-Digital-Board_1920x1080-scaled.jpg)
